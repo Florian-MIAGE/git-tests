@@ -1,4 +1,4 @@
 liste des participants :
-- Bruno Veraldi
-- Florian Roy
-- bouhÂ
+- Bruocwwc Veraldi
+- Floian Rwcoy
+- bouh
